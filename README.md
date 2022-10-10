@@ -1,6 +1,6 @@
-# GTAV
+# GTAVMS
 Privacy Policy
-Siarhei Blakhin built the GTA V - Grand Theft Auto Prank app as a Commercial app. This SERVICE is provided by Siarhei Blakhin and is intended for use as is.
+Siarhei Blakhin built the GTA V Mobile Screenshots - Grand Theft Auto Prank app as a Commercial app. This SERVICE is provided by Siarhei Blakhin and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
